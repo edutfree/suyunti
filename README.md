@@ -18,7 +18,7 @@
 
 【优惠活动】
 
-速云梯2025新年特惠包年7折优惠代码：[TTT5](https://xuv.cc/out/suyunti)
+速云梯2025新年特惠包年7折优惠代码：[YYY1](https://xuv.cc/out/suyunti)
 
 
 ## 速云梯特色
