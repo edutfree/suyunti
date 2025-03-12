@@ -4,9 +4,9 @@
 
 永久官网：[suyunti.com](https://xuv.cc/out/suyunti)
 
-地址1：[suyunti.net](https://suyunti201.xyz/auth/register?code=8Qj5)
+地址1：[https://suyunti88.xyz](https://suyunti88.xyz/auth/register?code=8Qj5)
 
-地址2：[https://suyunti70.xyz](https://suyunti70.xyz/auth/register?code=8Qj5)
+地址2：[https://suyunti99.xyz](https://suyunti99.xyz/auth/register?code=8Qj5)
 
 ## 简介
 
@@ -18,7 +18,7 @@
 
 【优惠活动】
 
-速云梯2025新年特惠包年7折优惠代码：[YYY1](https://xuv.cc/out/suyunti)
+速云梯2025新年特惠包年7折优惠代码：[YYY11](https://xuv.cc/out/suyunti)
 
 
 ## 速云梯特色
