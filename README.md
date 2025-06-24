@@ -6,7 +6,7 @@
 
 地址1：[https://suyunti88.xyz](https://suyunti88.xyz/auth/register?code=8Qj5)
 
-地址2：[https://suyunti99.xyz](https://suyunti99.xyz/auth/register?code=8Qj5)
+地址2：[https://suyunti82.xyz](https://suyunti82.xyz/auth/register?code=8Qj5)
 
 ## 简介
 
