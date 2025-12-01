@@ -4,9 +4,9 @@
 
 永久官网：[suyunti.com](https://xuv.cc/out/suyunti)
 
-地址1：[https://suyunti88.xyz](https://suyunti88.xyz/auth/register?code=8Qj5)
+地址1：[https://suyunti72.xyz](https://suyunti72.xyz/auth/register?code=8Qj5)
 
-地址2：[https://suyunti82.xyz](https://suyunti82.xyz/auth/register?code=8Qj5)
+地址2：[https://suyunti76.xyz](https://suyunti76.xyz/auth/register?code=8Qj5)
 
 ---
 
