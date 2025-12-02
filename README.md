@@ -1,8 +1,8 @@
-# 速云梯官网地址2025最新入口 + 优惠码
-
-下面是最新地址：
+# 速云梯官网最新地址
 
 永久官网：[suyunti.com](https://xuv.cc/out/suyunti)
+
+下面是最新地址：
 
 地址1：[https://suyunti72.xyz](https://suyunti72.xyz/auth/register?code=8Qj5)
 
@@ -18,7 +18,7 @@
 
 ## 简介
 
-速云梯机场，suyunti，某大机场分站，成立于2018年，提供ShadowsocksR节点及V2Ray节点，支持的付款方式有微信支付和支付宝。
+速云梯（suyunti），老牌加速器分站，成立于2018年，提供ShadowsocksR节点及V2Ray节点，支持微信和支付宝付款。
 
 支持SSR、V2ray节点，国内中转节点，解锁流媒体，CN2/BGP隧道中转和IPLC国际专线节点。
 
@@ -26,7 +26,7 @@
 
 【优惠活动】
 
-速云梯2025新年特惠包年7折优惠代码：[YYY11](https://xuv.cc/out/suyunti)
+速云梯包年7折优惠代码：[YYY11](https://xuv.cc/out/suyunti)
 
 
 ## 速云梯特色
