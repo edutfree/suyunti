@@ -8,26 +8,17 @@
 
 地址2：[https://suyunti76.xyz](https://suyunti76.xyz/auth/register?code=8Qj5)
 
----
+## 速云梯优惠码
 
-**温馨提示：任何服务均有跑路风险，请自行注意防范！**
+【优惠活动】
 
-**本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
-
----
+速云梯包年7折优惠代码：[YY19](https://xuv.cc/out/suyunti)
 
 ## 简介
 
 速云梯（suyunti），老牌加速器分站，成立于2018年，提供ShadowsocksR节点及V2Ray节点，支持微信和支付宝付款。
 
 支持SSR、V2ray节点，国内中转节点，解锁流媒体，CN2/BGP隧道中转和IPLC国际专线节点。
-
-## 速云梯优惠码
-
-【优惠活动】
-
-速云梯包年7折优惠代码：[YYY11](https://xuv.cc/out/suyunti)
-
 
 ## 速云梯特色
 
